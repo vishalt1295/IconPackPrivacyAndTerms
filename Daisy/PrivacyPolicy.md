@@ -1,6 +1,6 @@
 **Privacy Policy**
 
-Vishal Tailor built the Daisy app as a Commercial app. This SERVICE is provided by Vishal Tailor and is intended for use as is.
+Vishal Tailor built the Daisy icon pack app as a Commercial app. This SERVICE is provided by Vishal Tailor and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
